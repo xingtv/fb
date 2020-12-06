@@ -16,7 +16,7 @@ https://xingshiba.cc
 xingshiba@gmail.com
 # 永久地址
 https://sex18.cc
-# 請中文地址（在瀏覽器中輸入中文）
+# 中文地址（在瀏覽器中輸入中文，例如：凤楼.com）
 http://凤楼.com
 
 http://楼凤.com
@@ -30,7 +30,9 @@ http://杏十八.cc
 http://性十八.cc
 
 http://丽春院.com
-# 推荐使用火狐浏览器（Firefox）、谷歌浏览器（Chrome）、苹果自带浏览器（Safari）等大牌浏览器访问本站，部分浏览器屏蔽了本站访问，推荐浏览器点击下方链接即可下载：
+
+推荐使用火狐浏览器（Firefox）、谷歌浏览器（Chrome）、苹果自带浏览器（Safari）等大牌浏览器访问本站，部分浏览器屏蔽了本站访问，推荐浏览器点击下方链接即可下载：
+
 火狐浏览器（Firefox）下载地址：
 https://www.firefox.com.cn/
 
