@@ -1,9 +1,13 @@
-# 最新地址（2020.12.01 更新 / 本地址將定期更換）
+# 最新地址（2020.12.07 更新 / 本地址將定期更換）
+https://4klu.com
+
 https://heibivr.com
 
 https://xx18.xyz
 
 https://xing18.cc
+# APP下載
+https://app.sex1970.com
 # 請牢記本網址 / 防屏蔽（加入收藏夾）
 https://github.com/sex18vip/dz
 # 備用導航
