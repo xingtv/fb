@@ -1,4 +1,6 @@
-# 最新地址（2021.03.02 更新 / 本地址將定期更換）
+# 最新地址（2021.03.13 更新 / 本地址將定期更換）
+https://xing18.cc
+
 https://4klu.com
 
 https://xy999.xyz
@@ -11,7 +13,6 @@ https://heibivr.com
 
 https://xx18.xyz
 
-https://xing18.cc
 # APP下載
 https://app.sex1970.com
 # 請牢記本網址 / 防屏蔽（加入收藏夾）
