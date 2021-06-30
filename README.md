@@ -1,54 +1,71 @@
-# 最新地址（2021.04.21 更新 / 本地址將定期更換）
-https://xing18.cc
+#最新地址（2021.06.30 更新 / 本地址將定期更換）
+http://xingtv.tv
 
-https://4klu.com
+http://xingtv.net
 
-https://xy999.xyz
+http://xingtv.org
 
-https://xy22.site
+http://xingtv.vip
 
-https://xsb18.xyz
+http://xingtv.top
 
-https://heibivr.com
 
-https://xx18.xyz
+#请注意： 由于国内部分浏览器屏蔽了本站访问 
 
-# APP下載
-https://app.sex1970.com
-# 請牢記本網址 / 防屏蔽（加入收藏夾）
-https://github.com/sex18vip/dz
-# 備用導航
-https://xingshiba.cc
-# 發送任意郵件到下面郵箱獲取最新地址
-xingshiba@gmail.com
-# 永久地址
-https://sex18.cc
-# 中文地址（在瀏覽器中輸入中文，例如：凤楼.com）
-http://凤楼.com
+杏TV推荐使用 
 
-http://楼凤.com
-
-http://杏十八.com
-
-http://性十八.com
-
-http://性事吧.com
-
-http://杏十八.cc
-
-http://性十八.cc
-
-http://丽春院.com
-
-http://青楼.com
-
-推荐使用火狐浏览器（Firefox）、谷歌浏览器（Chrome）、苹果自带浏览器（Safari）等大牌浏览器访问本站，部分浏览器屏蔽了本站访问，推荐浏览器点击下方链接即可下载：
-
-火狐浏览器（Firefox）下载地址：
-https://www.firefox.com.cn/
+火狐浏览器（Firefox）
+下载地址： https://www.firefox.com.cn 
 
 谷歌浏览器（Chrome）
-https://www.google.cn/chrome/
+https://www.google.cn/chrome 
 
 苹果自带浏览器（Safari）
-https://www.apple.com.cn/safari/
+https://www.apple.com.cn/safari
+
+#永远能找到我们的方法一：
+发送邮件 shangji8090@gmail.com 即可获取最新地址
+
+#永远能找到我们的方法二：
+
+杏发布网 
+
+1-域名：xingfabu.cc
+2-域名：xingfabu.net
+3-域名：xingfabu.vip
+4-域名：xingfabu.org
+5-域名：xingfabu.top
+
+#永远能找到我们的方法三：
+https://github.com/xingtv/fb
+
+#再来点套路：
+套路一：记住我们的永久发布地址
+
+xingfabu.cc
+
+温馨提示：2秒记住 xingfabu.cc
+
+#套路二：收藏本站所有网址
+访问所有本站域名，按Ctrl+D，收藏到你的浏览器书签即可
+
+永久域名：
+xingtv.tv
+xingtv.net
+xingtv.org
+xingtv.vip
+xingtv.top
+
+当前可用域名：
+xingtv.net
+xingtv.org
+xingtv.vip
+xingtv.top
+
+温馨提示：找到自己访问最快的域名！
+
+
+
+
+
+
