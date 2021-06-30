@@ -18,10 +18,15 @@ http://xingtv.top
 杏发布网 
 
 1-域名：xingfabu.cc
+
 2-域名：xingfabu.net
+
 3-域名：xingfabu.vip
+
 4-域名：xingfabu.org
+
 5-域名：xingfabu.top
+
 
 永远能找到我们的方法三：
 https://github.com/xingtv/fb
