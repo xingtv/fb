@@ -17,15 +17,15 @@ http://xingtv.top
 
 杏发布网 
 
-1-域名：xingfabu.cc
+1-域名：http://xingfabu.cc
 
-2-域名：xingfabu.net
+2-域名：http://xingfabu.net
 
-3-域名：xingfabu.vip
+3-域名：http://xingfabu.vip
 
-4-域名：xingfabu.org
+4-域名：http://xingfabu.org
 
-5-域名：xingfabu.top
+5-域名：http://xingfabu.top
 
 
 永远能找到我们的方法三：
@@ -34,7 +34,7 @@ https://github.com/xingtv/fb
 再来点套路：
 套路一：记住我们的永久发布地址
 
-xingfabu.cc
+http://xingfabu.cc
 
 温馨提示：2秒记住 xingfabu.cc
 
@@ -43,25 +43,25 @@ xingfabu.cc
 
 永久域名：
 
-xingtv.tv
+http://xingtv.tv
 
-xingtv.net
+http://xingtv.net
 
-xingtv.org
+http://xingtv.org
 
-xingtv.vip
+http://xingtv.vip
 
-xingtv.top
+http://xingtv.top
 
 当前可用域名：
 
-xingtv.net
+http://xingtv.net
 
-xingtv.org
+http://xingtv.org
 
-xingtv.vip
+http://xingtv.vip
 
-xingtv.top
+http://xingtv.top
 
 温馨提示：找到自己访问最快的域名！
 
