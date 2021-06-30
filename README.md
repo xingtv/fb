@@ -42,16 +42,25 @@ xingfabu.cc
 访问所有本站域名，按Ctrl+D，收藏到你的浏览器书签即可
 
 永久域名：
+
 xingtv.tv
+
 xingtv.net
+
 xingtv.org
+
 xingtv.vip
+
 xingtv.top
 
 当前可用域名：
+
 xingtv.net
+
 xingtv.org
+
 xingtv.vip
+
 xingtv.top
 
 温馨提示：找到自己访问最快的域名！
