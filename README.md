@@ -1,14 +1,14 @@
 最新地址（2021.06.30 更新 / 本地址將定期更換）
 
-http://xingtv.tv
+https://xingtv.tv
 
-http://xingtv.net
+https://xingtv.net
 
-http://xingtv.org
+https://xingtv.org
 
-http://xingtv.vip
+https://xingtv.vip
 
-http://xingtv.top
+https://xingtv.top
 
 永远能找到我们的方法一：
 发送邮件 shangji8090@gmail.com 即可获取最新地址
@@ -17,15 +17,15 @@ http://xingtv.top
 
 杏发布网 
 
-1-域名：http://xingfabu.cc
+1-域名：https://xingfabu.cc
 
-2-域名：http://xingfabu.net
+2-域名：https://xingfabu.net
 
-3-域名：http://xingfabu.vip
+3-域名：https://xingfabu.vip
 
-4-域名：http://xingfabu.org
+4-域名：https://xingfabu.org
 
-5-域名：http://xingfabu.top
+5-域名：https://xingfabu.top
 
 
 永远能找到我们的方法三：
@@ -34,7 +34,7 @@ https://github.com/xingtv/fb
 再来点套路：
 套路一：记住我们的永久发布地址
 
-http://xingfabu.cc
+https://xingfabu.cc
 
 温馨提示：2秒记住 xingfabu.cc
 
@@ -43,25 +43,25 @@ http://xingfabu.cc
 
 永久域名：
 
-http://xingtv.tv
+https://xingtv.tv
 
-http://xingtv.net
+https://xingtv.net
 
-http://xingtv.org
+https://xingtv.org
 
-http://xingtv.vip
+https://xingtv.vip
 
-http://xingtv.top
+https://xingtv.top
 
 当前可用域名：
 
-http://xingtv.net
+https://xingtv.net
 
-http://xingtv.org
+https://xingtv.org
 
-http://xingtv.vip
+https://xingtv.vip
 
-http://xingtv.top
+https://xingtv.top
 
 温馨提示：找到自己访问最快的域名！
 
